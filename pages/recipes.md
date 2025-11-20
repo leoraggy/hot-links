@@ -24,7 +24,7 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 
 My grandmas mississippi mud recipe is a lot different. This one has marshmallows?
 
-## [Ube Cake](https://www.hungryhuy.com/ube-cake/)
+## [Ube Cake (Filipino Purple Yam Cake w/ Macapuno)](https://www.hungryhuy.com/ube-cake/)
 
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
