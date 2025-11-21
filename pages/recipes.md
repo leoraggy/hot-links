@@ -26,6 +26,6 @@ My grandmas mississippi mud recipe is a lot different. This one has marshmallows
 
 ## [Ube Cake (Filipino Purple Yam Cake w/ Macapuno)](https://www.hungryhuy.com/ube-cake/)
 
-[Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
+[Archived Link](https://web.archive.org/web/20250219092238/https://www.hungryhuy.com/ube-cake/)
 
 A recipe to bake a delicious ube cake!
